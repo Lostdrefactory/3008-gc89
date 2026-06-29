@@ -1,4 +1,4 @@
-#  
+#  Experience 3008 like never before with 3008 Scripts secret, the #1 Script. Includes teleport and one-hit kill for unbeatable performance.
 
 
 
